@@ -1,1 +1,0 @@
-Fyodar Zakharau
